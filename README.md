@@ -29,3 +29,15 @@ Taller desarrollado por el **Google Developer Student Club de la Universidad de 
 - El cine
 - Leer
 - Salir a correr
+
+
+Hola !😃
+Mi nombre es Dhyana 
+Me gusta leer, aprender , dormir, viajar, cocinar
+tengo tres gatos
+Me gustan las mariposas🦋 y las 🐞 no me gustan las 🦟me gustan los vegetales y las frutas...
+
+
+
+
+
